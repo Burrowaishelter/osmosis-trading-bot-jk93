@@ -1,4 +1,4 @@
-# 
+# professional osmosis trading bot Strategy | token-launch-monitoring + sandwich-attack-protection is the best osmosis trading bot, featuring token-launch-monitoring and
 
 
 
